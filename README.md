@@ -29,4 +29,5 @@ I am an aspiring Android developer and a tech enthusiast. I focus on creating cl
 
 ### 📫 Connect with me
 
-* **Telegram:** [@LEMON4IKY](https://t.me)
+* **Telegram:** [@LEMON4IKY]([https://t.me](https://t.me/LEMON4KY))
+* **Instagram:** []
